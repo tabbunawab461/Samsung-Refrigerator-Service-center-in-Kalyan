@@ -1,0 +1,2 @@
+# Samsung-Refrigerator-Service-center-in-Kalyan
+the customer care service will make a compliant registered with a number identity. To clarify one thing we will repair only out of warranty products. To be sure it’s’ ours all our city to contact without fasting one second even ping a mail by filling the details in the contact form or make a call to our customer care despite. Another key point all brand appliances will get the repair at your doorstep at any time. https://samsung-servicecenterinmumbai.com/samsung-refrigerator-service-center-in-kalyan/
